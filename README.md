@@ -1,0 +1,1 @@
+# Development-and-analysis-of-concepts-for-PV-systems-after-the-EEG-subsidy-in-Germany
